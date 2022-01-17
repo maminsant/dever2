@@ -1,1 +1,1 @@
-# dever2
+# https://maminsant.github.io/dever2/
